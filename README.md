@@ -1,2 +1,2 @@
 # shafeeazeem.com
-# finish by 30th jan 2024
+# finish before cake day
